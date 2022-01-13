@@ -2,6 +2,7 @@
 
 
 
-https://opensea.io/
 
 
+
+https://mintchoco113.syltare.com/
